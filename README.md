@@ -4,4 +4,4 @@ Ian Rappaport
 
 Nehemias Cruz
 
-James Markham
+James Markham - mercury & venus only 2 planets with no moons
