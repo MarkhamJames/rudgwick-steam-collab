@@ -1,7 +1,11 @@
 # rudgwick-steam-collab
 
 Ian Rappaport
-https://github.com/MarkhamJames/rudgwick-steam-collab.git
-Nehemias Cruz
+
+
+
+
+Nehemias Cruz : Going to work is more dangerous than going to war.
+
 
 James Markham
