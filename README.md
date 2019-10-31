@@ -2,6 +2,6 @@
 
 Ian Rappaport
 
-Nehemias Cruz
+Nehemias Cruz : Going to work is more dangerous than going to war.
 
 James Markham
